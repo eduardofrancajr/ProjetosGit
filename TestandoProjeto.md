@@ -1,0 +1,1 @@
+começando a desenvolver as ideias.
